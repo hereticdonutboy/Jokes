@@ -22,9 +22,6 @@
   ##### 5. Wenlock and Mandeville, London Olympics
   ![LondonOlympics](https://upload.wikimedia.org/wikipedia/commons/thumb/6/66/Olympic_mascots_%28cropped%29.jpg/1280px-Olympic_mascots_%28cropped%29.jpg)
 
-# Billy Questions:
-
-
 
 
 

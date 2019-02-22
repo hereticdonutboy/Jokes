@@ -1,5 +1,5 @@
 # Ray Questions:
-## ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 1. Where is the best place for you to land a successful joke: Around Family, Around Friends, when you were writing at the Dailyer, or when you are up on the stage delivering to strangers.
 2. Okay so you were just on a podcast a few weeks okay and I want to just hear about that. What kinda background things happened that maybe the average listener might not expect.
 3. Now I know you are currently on the eat like shit and feel bad diet, but was that always true? Were you big into the food scene in Lincoln? If yes:
@@ -12,7 +12,7 @@
 9. What is the worst you have seen someone flop up on stage? Do you remember the joke or bit they were trying to do?
 10.
 # Billy Questions:
-## ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
 
 

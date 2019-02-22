@@ -9,7 +9,19 @@
 7. You invited us all out to your show recently and it was awesome, from start to finish funny, but there have been plenty of nights we haven't all been there to watch you. Are there jokes you've tried to tell up there that the audience just wasn't receiving?
 8. As a known jokester you have told plenty of jokes on and off the stage, but are there any jokes that haven't landed that you desperately still think to this day are funny?
 9. What is the worst you have seen someone flop up on stage? Do you remember the joke or bit they were trying to do?
-10.
+10. Are there any trends in professional or amature comedy that stick out to you as being absolutly fucking abnoxious? 
+11. Alright so now that all of these wing sauces are gassing you up I need you to take a look at a few mascots for me and just give me your honest to god opinions of them.
+  ##### 1. Bolt Man, Los Angeles Chargers 
+  ![BoltMan](https://www.cheatsheet.com/wp-content/uploads/2018/06/GettyImages-82748773.jpg)
+  ##### 2.  Sir Saint, New Orleans Saints
+  ![SirSaint](https://www.cheatsheet.com/wp-content/uploads/2018/06/GettyImages-103319775.jpg)
+  ##### 3. King Cake Baby, New Orleans Pelicans
+  ![ScaryBaby](https://cdn.lolwot.com/wp-content/uploads/2016/03/10-of-the-worst-mascots-ever-created-6.jpg)
+  ##### 4. Kingley, Patrick Thistle Football Club
+  ![TheSun](https://cdn.lolwot.com/wp-content/uploads/2016/03/10-of-the-worst-mascots-ever-created-5.jpg)
+  ##### 5. Wenlock and Mandeville, London Olympics
+  ![LondonOlympics](https://upload.wikimedia.org/wikipedia/commons/thumb/6/66/Olympic_mascots_%28cropped%29.jpg/1280px-Olympic_mascots_%28cropped%29.jpg)
+
 # Billy Questions:
 
 
